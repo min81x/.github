@@ -4,7 +4,7 @@
 En esta guía, descubrirás todo lo que necesitas saber sobre esta versión: jugabilidad, gráficos, trucos y más.
 
 ---
-## [Descargar - Minecraft 1.21.81 APK](https://shorturl.at/q6oiZ)
+## [Descargar - Minecraft 1.21.81 APK](https://shorturl.at/kHI3y)
 
 ## 📥 Introducción a Minecraft 1.21.81 APK
 
